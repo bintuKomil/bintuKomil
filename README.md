@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @bintuKomil
+- 👋 Hi, I’m Sevinch
 
 
 <!---
